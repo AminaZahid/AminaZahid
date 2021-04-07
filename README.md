@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AminaZahid
+- 👀 I’m interested in book reading, business as well as travelling.
+- 🌱 I’m currently learning business skills to run my own business.
+- 📫 Contact me using Email: aminazahid45@gmail.com
